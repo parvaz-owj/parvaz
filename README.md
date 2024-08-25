@@ -1,2 +1,3 @@
 # parvaz
 ![git](https://github.com/user-attachments/assets/85e4612e-ed5f-46bb-9fe2-fd3cbff27a61)
+![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)
